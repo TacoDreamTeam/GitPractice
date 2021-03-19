@@ -6,9 +6,12 @@ red ant seeks, dog snarls
 moon sails, impregnable fish
 parroting pikes chop
 
+pianist resists
+prim bumbling salmon rages, frost
+boasting, rambling smooth
 
 
-
-
-
+sun-drenched beehive floats
+starflower rides, snide wrinkled
+benign crow shaking
 Goodbye World!
