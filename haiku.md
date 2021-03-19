@@ -5,8 +5,9 @@ ho-shi-ge na-ri (4)
 
 
 
-just testing 
-
+pianist resists
+prim bumbling salmon rages, frost
+boasting, rambling smooth
 
 sun-drenched beehive floats
 starflower rides, snide wrinkled
