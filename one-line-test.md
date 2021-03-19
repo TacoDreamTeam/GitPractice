@@ -1,2 +1,2 @@
 Hello world!
-Replace me!
+Sophia is our instructor
